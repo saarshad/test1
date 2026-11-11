@@ -1,5 +1,0 @@
-Hello how are you,  what the hell,  my name is sayeed.
-whats your name
-who else is here
-
-https://www.youtube.com/watch?v=aCNiY65G63w
